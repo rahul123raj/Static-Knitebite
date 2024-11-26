@@ -61,4 +61,3 @@ Email: rahul123rajkr@gmail.com
 file:///home/rahul/P![Screenshot from 2024-07-14 14-46-04](https://github.com/user-attachments/assets/907dbac7-0ee7-4242-bab5-764861cd082b)
 ictures/Screenshots/Screenshot%20from%202024-07-14%2014-45-47.png
 
-file:///home/rahul/Pictures/Screenshots/Screenshot%20from%202024-07-14%2014-46-25.png
